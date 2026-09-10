@@ -1,2 +1,3 @@
 Yoonjin Kim
 2026150017
+Nikulinskaia Ekaterina
